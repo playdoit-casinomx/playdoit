@@ -1,3 +1,5 @@
+# <a href="https://bit.ly/casmx">¡HAZ CLIC Y RECLAMA TU BONO!</a>
+
 # Playdoit Casino México 2025: Innovación y Diversión en Apuestas y Casino Online
 
 En 2025, Playdoit se ha convertido en una de las plataformas favoritas en México para apuestas deportivas y juegos de casino en línea. Su enfoque innovador, adaptado a las necesidades locales, y su constante evolución tecnológica la posicionan como una de las mejores opciones para los amantes del entretenimiento digital.
