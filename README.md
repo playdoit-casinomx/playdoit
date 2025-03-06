@@ -32,7 +32,7 @@ Playdoit México 2025 es mucho más que una plataforma de apuestas y casino; es 
 
 playdoit
 
-playdoit casino
+<a href="https://playdoit-casino.mx">playdoit casino</a>
 
 playdoit app
 
